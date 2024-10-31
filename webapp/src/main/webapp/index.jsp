@@ -1,1 +1,1 @@
-Hello, Welcome to great leaders from Bangalore and across the globe.
+Hello, Welcome to great goddess Mahakali.
